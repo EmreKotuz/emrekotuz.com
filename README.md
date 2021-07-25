@@ -1,0 +1,2 @@
+# emrekotuz.com
+emrekotuz.com
